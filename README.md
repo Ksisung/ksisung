@@ -4,11 +4,11 @@ My name is Krista and I am in Customer Care! &#128151;<br>
 
 I help users and business owners list & manage products with eBay from the #1 multi-channel listing tool: <a href="https://www.inkfrog.com">inkFrog! &#128056;</a>
 
-- 🔭 I’m currently assisting users in Intercom and Zendesk
-- 🌱 I’m currently learning Wix Answers and Wix Bookings
-- 💬 Ask me about inkFrog Classic, inkFrog Open, Shipsaver, Highwire, Shopify eBay Connect App, eBay by inkFrog (BigCommerce)
-- 📫 How to reach me: <a href="https://www.facebook.com/kristasisung">Facebook</a> or kristasisung@gmail.com
-- 🤔 I’m looking for collaborations on building a virtual Renaissance design/art community
+- 🔭 Currently assisting users in Intercom and Zendesk
+- 🌱 Learning Wix Answers and Wix Bookings
+- 💬 Ask me about inkFrog Classic, InkFrog Open, Shipsaver, Highwire, Shopify, BigCommerce and Amazon
+- 📫 Reach me: <a href="https://www.facebook.com/kristasisung">Facebook</a> or kristasisung@gmail.com
+- 🤔 Looking for collaborations on building a virtual Renaissance design/art community
 - ⚡ Fun fact: I can say the alphabet backwards suuuuper fast 
 
 <!--
