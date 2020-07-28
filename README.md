@@ -4,7 +4,7 @@ My name is Krista and I am in Customer Care! &#128151;<br>
 
 I help users and business owners list & manage products with eBay from the #1 multi-channel listing tool: <a href="https://www.inkfrog.com">inkFrog! &#128056;</a>
 
-- 🔭 Currently assisting users in Intercom and Zendesk
+- 🔭 Currently assisting users in Intercom, Zendesk, Github and JIRA
 - 🌱 Learning Wix Answers and Wix Bookings
 - 💬 Ask me about inkFrog Classic, InkFrog Open, Shipsaver, Highwire, Shopify, BigCommerce and Amazon
 - 📫 Reach me: <a href="https://www.facebook.com/kristasisung">Facebook</a> or kristasisung@gmail.com
