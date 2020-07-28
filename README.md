@@ -6,10 +6,10 @@ I help users and business owners list & manage products with eBay from the #1 mu
 
 - 🔭 I’m currently assisting users in Intercom and Zendesk
 - 🌱 I’m currently learning Wix Answers and Wix Bookings
-- 💬 Ask me about inkFrog Classic, inkFrog Open, Shipstation, and Highwire.
+- 💬 Ask me about inkFrog Classic, inkFrog Open, Shipstation, and Highwire
 - 📫 How to reach me: <a href="https://www.facebook.com/kristasisung">Facebook</a> or kristasisung@gmail.com
-- 🤔 I’m looking for collaborators to build a virtual Rennaissance design/art community
-- ⚡ Fun fact: I can say the alphabet backwards suuuuper fast. 
+- 🤔 I’m looking for music collaborations in all forms; also networking toward a virtual Rennaissance design/art community
+- ⚡ Fun fact: I can say the alphabet backwards suuuuper fast 
 
 <!--
 **Ksisung/ksisung** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
