@@ -6,8 +6,8 @@ I help users and business owners list & manage products with eBay from the #1 mu
 
 - 🔭 I’m currently assisting users in Intercom and Zendesk
 - 🌱 I’m currently learning Wix Answers and Wix Bookings
-- 🤔 I’m looking for collaborators to build a virtual Rennaissance design/art community
 - 💬 Ask me about inkFrog Classic, inkFrog Open, Shipstation, and Highwire.
+- 🤔 I’m looking for collaborators to build a virtual Rennaissance design/art community
 - 📫 How to reach me: <a href="https://www.facebook.com/kristasisung">Facebook</a>, <a href="https://www.instagram.com/kristasisung">Instagram</a>, or kristasisung@gmail.com 
 - ⚡ Fun fact: I can say the alphabet backwards really fast.
 
