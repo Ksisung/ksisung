@@ -7,7 +7,7 @@ I help users and business owners list & manage products with eBay from the #1 mu
 - 🔭 Currently assisting users in Intercom, Zendesk, Github and JIRA
 - 🌱 Learning Wix Answers and Wix Bookings
 - 💬 Ask me about inkFrog Classic, InkFrog Open, Shipsaver, Highwire, Shopify, BigCommerce and Amazon
-- 📫 Reach me: <a href="https://www.facebook.com/kristasisung">Facebook</a> or kristasisung@gmail.com
+- 📫 Find me on Facebook or kristasisung@gmail.com
 - 🤔 Looking for collaboration on building a virtual Renaissance design/art community
 - ⚡ Fun fact: I can say the alphabet backwards suuuuper fast 
 
