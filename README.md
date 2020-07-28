@@ -1,8 +1,6 @@
 ### Hi there 👋
 
-My name is Krista and I am in Customer Care! &#128151;<br> 
-
-I help users and business owners list & manage products with eBay from the #1 multi-channel listing tool: <a href="https://www.inkfrog.com">inkFrog! &#128056;</a>
+My name is Krista and I am in Customer Care! &#128151;<br> I help users and business owners list & manage products with eBay from the #1 multi-channel listing tool: <a href="https://www.inkfrog.com">inkFrog! &#128056;</a>
 
 - 🔭 I’m currently assisting users in Intercom and Zendesk
 - 🌱 I’m currently learning Wix Answers and Wix Bookings
