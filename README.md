@@ -7,7 +7,7 @@ I help users and business owners list & manage products using the #1 multi-chann
 - 🔭 Currently assisting users in Answers, Zendesk, Github and JIRA
 - 🌱 Love learning new stuff. What should I learn next? 🤔
 - 💬 Ask me about inkFrog Classic, InkFrog Open, Shipsaver, Highwire, Shopify, BigCommerce and Amazon
-- 📫 How to reach me: live in the moment. jk you can find me on Insta.
+- 📫 How to reach me: live in the moment. jk you can find me in Arizona. 
 - 🤔 Looking for collaboration on building a virtual Renaissance design/art community
 - ⚡ Fun fact: I can say the alphabet backwards super fast.   
 
