@@ -6,7 +6,7 @@ I help users and business owners list & manage products using the #1 multi-chann
  
 - 🔭 Currently assisting users in WiX Answers, Zendesk, Github and JIRA; Very proud to be part of the WiX's global network of artists!
 
-- 🌱 Love learning new stuff; I play music, love to dance and hang out with my friends in Arizona!
+- 🌱 Love learning new stuff; I play music, love to dance and hang out with my friends in Arizona
 
 - 💬 Ask me about inkFrog Classic, InkFrog Open, Shipsaver, Highwire, Shopify, BigCommerce and Amazon
 
