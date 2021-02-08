@@ -2,7 +2,7 @@
 
 My name is Krista and I am in Customer Care! &#128151;<br> 
 
-I help users and business owners list & manage products using the #1 multi-channel listing tool: <a href="https://www.inkfrog.com">inkFrog! 
+I help users and business owners list & manage products using the #1 multi-channel listing tool: <a href="https://www.inkfrog.com"> inkFrog! 
  
 - 🔭 Currently assisting users in WiX Answers, Zendesk, Github and JIRA; Very proud to be part of the WiX's global network of artists!
 - 🌱 Love learning new stuff; I play music, love to dance and hang out with my friends in Arizona!
