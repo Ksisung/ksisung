@@ -10,7 +10,7 @@ I help users and business owners list & manage products using the #1 multi-chann
 
 - 💬 Ask me about inkFrog Classic, InkFrog Open, Shipsaver, Highwire, Shopify, BigCommerce and Amazon
 
-- 📫 How to reach me: kristas@wix.com or Instagram!  
+- 📫 How to reach me: kristas@wix.com 
 
 - ⚡ Fun fact: I can say the alphabet backwards super fast.   
 
