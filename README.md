@@ -8,7 +8,7 @@ I help users and business owners list & manage products using the #1 multi-chann
 
 - 🌱 Love learning new stuff; I love music, dancing, and hang out with my friends in Arizona
 
-- 💬 Ask me about: inkFrog Classic, InkFrog Open, Connect eBay, Shopify, BigCommerce and Amazon
+- 💬 Ask me about: inkFrog Classic, InkFrog Open, eBay Connect, Shopify, BigCommerce and Amazon
 
 - 📫 How to reach me: kristas@wix.com 
 
