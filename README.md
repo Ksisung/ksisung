@@ -2,7 +2,7 @@
 
 My name is Krista and I am in Customer Care! &#128151;
 
-- 🔭 Currently assisting inkFrog users via WiX Answers, Zendesk, Github and JIRA 
+- 🔭 Currently assisting inkFrog & eBay users via WiX Answers, Zendesk, Github and JIRA 
 
 - 🌱 Love learning new stuff, making music, dancing, and hanging out with family and friends in Arizona
 
