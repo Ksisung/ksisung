@@ -4,7 +4,7 @@ My name is Krista and I am in Customer Care! &#128151;
 
 - 🔭 Currently assisting inkFrog & eBay users via WiX Answers, Zendesk, Github and JIRA 
 
-- 🌱 Love learning new stuff, making music, dancing, and hanging out with family and friends in Arizona
+- 🌱 Love meeting new people, reading and spending time with family and friends in Arizona
 
 - 💬 Ask me about: inkFrog Classic, InkFrog Open, eBay Connect, Shopify, BigCommerce and Amazon
 
