@@ -2,13 +2,13 @@
 
 My name is Krista and I am in Customer Care! &#128151;
 
-- 🔭 Currently assisting inkFrog & eBay users via WiX Answers, Zendesk, Github and JIRA 
+- 🔭 Provided assistance to inkFrog & eBay users via WiX Answers, Zendesk, Github and JIRA 
 
 - 🌱 Love meeting new people, reading and spending time with family and friends in Arizona
 
-- 💬 Ask me about: inkFrog Classic, InkFrog Open, eBay Connect, Shopify, BigCommerce and Amazon
+- 💬 Ask me about: Wix.com, inkFrog Classic, InkFrog Open, eBay Connect, Shopify, BigCommerce and Amazon
 
-- 📫 How to reach me: kristas@wix.com 
+- 📫 How to reach me: kristasisung@gmail.com
 
 - ⚡ Fun fact: I can say the alphabet backwards super fast.   
 
